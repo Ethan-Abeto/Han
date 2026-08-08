@@ -1,4 +1,6 @@
-Hi !<img scr="https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif](https://media.tenor.com/seGvGe7Cp2cAAAAj/anime-bocchi.gif" </a> My name is Ethan Lestat Abeto
+Hi !
+<img scr="https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif](https://media.tenor.com/seGvGe7Cp2cAAAAj/anime-bocchi.gif"/>
+My name is Ethan Lestat Abeto
 ===========================================================================================================================================
 
 Aspiring programmer
